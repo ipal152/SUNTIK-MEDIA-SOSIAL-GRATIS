@@ -1,0 +1,2 @@
+# SUNTIK-MEDIA-SOSIAL-GRATIS
+Gratis jak
